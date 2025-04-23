@@ -24,9 +24,9 @@ As a proud woman- and minority-owned firm based in **Boston, MA** and **Omaha, N
 
 ## Connect with Us
 
-- Website: [www.coura.co](https://www.coura.co)
-- Email: hello@coura.co
-- LinkedIn: [Coura on LinkedIn](https://www.linkedin.com/company/coura-co/)
-- Instagram: [@coura.co](https://www.instagram.com/coura.co/)
+- Website: [www.coura.io](https://www.coura.io)
+- Email: hello@coura.io
+- LinkedIn: [Coura on LinkedIn](https://www.linkedin.com/company/courallc)
+- Instagram: [@coura.io](https://www.instagram.com/coura.io/)
 
 ---
