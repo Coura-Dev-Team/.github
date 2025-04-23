@@ -17,11 +17,6 @@ As a proud woman- and minority-owned firm based in **Boston, MA** and **Omaha, N
 
 ---
 
-## Clients & Impact
-
-- We’ve partnered with fast-growing DTC brands, Fortune 500 teams, and visionary founders to bring ambitious ideas to life — always with a focus on long-term results and meaningful experiences.
----
-
 ## Connect with Us
 
 - Website: [www.coura.io](https://www.coura.io)
